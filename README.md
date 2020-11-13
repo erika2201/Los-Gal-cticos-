@@ -2,47 +2,5 @@
 
 Buenas
 Compañeras
-Como estan
-Pendejas
-
-Pendejas
-Pendejas
-
-Pendejas
-Pendejas
-Pendejas
-
-Pendejas
-Pendejas
-Pendejas
-
-Pendejas
-Pendejas
-Pendejas
-
-Pendejas
-Pendejas
-Pendejas
-
-Pendejas
-Pendejas
-Pendejas
-
-Pendejas
-Pendejas
-Pendejas
-
-Pendejas
-Pendejas
-Pendejas
-
-Pendejas
-Pendejas
-Pendejas
-
-				
-Pendejas
-Pendejas
-Pendejas
-
-								Pendejas
+Como estan reinas del futuro de programación, mis superiores.
+Las voy alabar por toda la eternidad.
